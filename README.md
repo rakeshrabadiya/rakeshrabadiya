@@ -14,7 +14,7 @@
 
 💬 My personal mission is to build AI-based solutions that solve a high-impact problem for people around the globe and simplify everyday living.
 
-👯 I'm interested in collaborating, mentoring, and coaching with fellow enthusiasts in the field of AI. If you have an idea related to my areas of interest, feel free to shoot me an [email](anandchauhan8791@gmail.com)!
+👯 I'm interested in collaborating, mentoring, and coaching with fellow enthusiasts in the field of AI. If you have an idea related to my areas of interest, feel free to shoot me an [E-mail](rakeshrabadiya777@gmail.com)!
 
 
 ## 🌐 Socials:
