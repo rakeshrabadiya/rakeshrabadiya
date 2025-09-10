@@ -1,4 +1,4 @@
-https://www.facebook.com/share/1Cz3yQxQ4X/- 👋 Hi, I’m @rakeshrabadiya
+- 👋 Hi, I’m @rakeshrabadiya
 - 👀 I’m interested in Gaming and Volleyball
 - 🌱 I’m currently learning AI & Data Science 
 - 💞️ I’m looking to collaborate on a Project of Mine
